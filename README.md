@@ -4,6 +4,8 @@
 > >  I'm often offtab or AFK, so please whisper if you wish to interact. </br>
 >
 > > My friend requests are off.
+> 
+> > I block freely. I hide people<sub> (for 24h)</sub> if I'm overwhelmed and find the area crowdy.
 
 > Do <ins>no</ins>t interact if you('re) : </br>
 > > Any younger than 13. </br>
