@@ -2,8 +2,6 @@
 ![ dazai](https://github.com/user-attachments/assets/f3952fa5-7242-474a-9444-557a37c0fa95) </br>
 > <ins>**Greet**</ins>ings, refer to me as ***Katherine*** or ***Rina*** . </br>
 > >  I'm often offtab or AFK, so please whisper if you wish to interact. </br>
->
-> > My friend requests are off.
 > 
 > > I block freely. I hide people<sub> (for 24h)</sub> if I'm overwhelmed and find the area crowdy.
 
