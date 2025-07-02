@@ -8,9 +8,9 @@
 > Do <ins>no</ins>t interact if you('re) : </br>
 > > Any younger than 13. </br>
 > 
-> > Racebend/whitewash. <sup> (Doesn't apply to *system introjects*.) </sup>
+> > Racebend/whitewash. <sup> (Doesn't apply to *system introjects* and their racial identity.) </sup>
 > 
-> > Support ***headcanons*** regarding sexual assault, trans ***headcanons*** about a character. <sup> (Doesn't apply to *system introjects*.) </sup> </br>
+> > Support ***headcanons*** regarding sexual assault, trans ***headcanons*** about a character. <sup> (Doesn't apply to *system introjects* and their actual experienece be it in-source or outside it.) </sup> </br>
 >
 > > Wish to genuinely degrade somebody for their racial. sexual, gender identity.
 >
