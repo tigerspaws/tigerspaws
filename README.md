@@ -21,6 +21,6 @@
 > 
 > > Please don't treat me as the character of my skin ***unless we're clearly roleplaying***. </br>It generally makes me uncomfortbale.
 >
-> > PLease don't make sexual jokes towards me unless I state to be okay with it.
+> > Please don't make sexual jokes towards me unless I state to be okay with it.
 > 
 > > I ask to not be forced to agree with your opinion, though I'm always open to discuss it. 
