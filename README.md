@@ -6,7 +6,7 @@
 > > I block freely. I hide people<sub> (for 24h)</sub> if I'm overwhelmed and find the area to be crowdy.
 
 > Do <ins>no</ins>t interact if you('re) : </br>
-> > Any younger than 13. </br>
+> > Any younger than 13<sup>(body wise)</sup>. </br>
 > 
 > > Racebend/whitewash. <sup> (Doesn't apply to *system introjects* and their racial identity.) </sup>
 > 
