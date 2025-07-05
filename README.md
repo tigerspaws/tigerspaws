@@ -17,6 +17,8 @@
 > > Support and/or make jokes regarding pedophilia, sexual assault/harassment.
 
 > My <ins>boun</ins>daries : </br>
+> > IRLs (DMS) and fictionkins are on really thin ice. I will not feed into an IRL's delusions.
+> 
 > > I will not treat introjects, IRLs, fictkins as though they're characters ***unless we're roleplaying***.
 > 
 > > Please don't treat me as the character of my skin ***unless we're clearly roleplaying***. </br>It generally makes me uncomfortbale.
