@@ -1,5 +1,6 @@
  «  `Please, take me with you. Wake me from this oxidising world of a dream.`  » <br/>
-![ dazai](https://github.com/user-attachments/assets/f3952fa5-7242-474a-9444-557a37c0fa95) </br>
+![ dazai](https://files.catbox.moe/3nntld.PNG) </br>
+![sig](https://files.catbox.moe/h8433s.jpeg)
 > <ins>**Greet**</ins>ings, refer to me as ***Katherine*** or ***Rina*** . </br>
 > >  I'm often offtab or AFK, so please whisper if you wish to interact. </br>
 > 
