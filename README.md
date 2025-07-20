@@ -27,4 +27,7 @@
 >
 > > Please don't make sexual jokes towards me unless I state to be okay with it.
 > 
-> > I ask to not be forced to agree with your opinion, though I'm always open to discuss it. 
+> > I ask to not be forced to agree with your opinion, though I'm always open to discuss it. </br>
+
+
+![](https://komarev.com/ghpvc/?username=tigerspaws)
