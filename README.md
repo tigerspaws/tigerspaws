@@ -1,10 +1,11 @@
- «  `Please, take me with you. Wake me from this oxidising world of a dream.`  » <br/>
+ «  `My ability was ideal for crime, even those who seemed kind, completely utilized me in the end.`  » <br/>
 ![ dazai](https://files.catbox.moe/3nntld.PNG) </br>
-![sig](https://files.catbox.moe/h8433s.jpeg)
 > <ins>**Greet**</ins>ings, refer to me as ***Katherine*** or ***Rina*** . </br>
 > >  I'm often offtab or AFK, so please whisper if you wish to interact. </br>
 > 
 > > I block freely. I hide people<sub> (for 24h)</sub> if I'm overwhelmed and find the area to be crowdy.
+> 
+> > Take inspiration of my artwork/ponies freely, but please do not copy.
 
 > Do <ins>no</ins>t interact if you('re) : </br>
 > > Any younger than 13<sup>(body wise)</sup>. </br>
