@@ -1,4 +1,4 @@
- «  `My ability was ideal for crime, even those who seemed kind, completely utilized me in the end.`  » <br/>
+ «  `My ability was ideal for crime, even those who seemed kind, completely utilised me in the end.`  » <br/>
 ![ dazai](https://files.catbox.moe/3nntld.PNG) </br>
 > <ins>**Greet**</ins>ings, refer to me as ***Katherine*** or ***Rina*** . </br>
 > >  I'm often offtab or AFK, so please whisper if you wish to interact. </br>
