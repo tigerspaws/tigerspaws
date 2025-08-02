@@ -30,4 +30,4 @@
 > > I ask to not be forced to agree with your opinion, though I'm always open to discuss it. </br>
 
 
-![](https://komarev.com/ghpvc/?username=tigerspaws)
+![](https://komarev.com/ghpvc/?username=tigerspaws&color=9b74a1)
